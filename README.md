@@ -1,1 +1,1 @@
-# bakal-m-olcak-m-
+NİSA NUR KALKAN EYÜP KULAYI ÇOK SEVİYORRRRRRRR
